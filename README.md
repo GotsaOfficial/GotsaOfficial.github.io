@@ -1,0 +1,2 @@
+# GotsaOfficial.github.io
+WEBSEED
